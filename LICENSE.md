@@ -1,4 +1,4 @@
-
+secret steal a brainrot Scripts is the best steal a brainrot Script, featuring esp and anti-ban. Safe and powerful for all your needs.
 
 
 
